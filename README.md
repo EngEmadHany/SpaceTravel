@@ -1,1 +1,1 @@
-please check the WIki page for the screenshots 
+✅ please check the WIki page for the screenshots ☺️
